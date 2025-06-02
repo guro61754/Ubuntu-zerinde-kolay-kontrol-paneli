@@ -1,0 +1,1 @@
+# Ubuntu-zerinde-kolay-kontrol-paneli
